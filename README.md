@@ -29,3 +29,5 @@ https://docs.google.com/document/d/17dkgRFIxEAdOvFsUuCD5TGeWHCqcC7U-Ha5MJ0EfdtI/
 ![image](https://github.com/DelpanDDD/DemoEkzamen/assets/98009151/708ed022-847a-4e5e-9e07-34ac1e55b084)
 
 ![image](https://github.com/DelpanDDD/DemoEkzamen/assets/98009151/9d97169c-3e85-4687-948d-f0de66d9e423)
+
+![qDd3-Hd4Dhs](https://github.com/aborinada/demoekzamen/assets/97913101/dd1d6048-c0f6-49c6-a11a-ac9384d34e84)
