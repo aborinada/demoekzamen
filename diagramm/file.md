@@ -25,3 +25,6 @@
 
 ![image](https://github.com/Kulikov205/DemoEkzamen/assets/97594290/7419ea43-9905-47d0-b7f1-0790f6efb07c)</br>
 ![image](https://github.com/Kulikov205/DemoEkzamen/assets/97594290/5f9e07f1-551c-4fdf-a94f-b2a9df3759f8)</br>
+
+
+![image](https://github.com/aborinada/demoekzamen/assets/97913101/64c07e74-9598-4f8d-a0ab-8617d7e45d95)
